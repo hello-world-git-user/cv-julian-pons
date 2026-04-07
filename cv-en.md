@@ -1,1 +1,0 @@
-Curriculum Vitae (English version) — coming soon.
